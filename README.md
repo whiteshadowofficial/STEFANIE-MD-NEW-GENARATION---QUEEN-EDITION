@@ -1,4 +1,4 @@
-## Stefanie
+## Stefanie WA BOT
 
 ### Multi Device  [ ❑ 𝗤𝗨𝗘𝗘𝗡 𝗘𝗗𝗜𝗧𝗜𝗢𝗡 𝗩2 ❑ ]  Unlimited Version (24 hors Activation )
 
@@ -11,3 +11,5 @@
 > [Automated Multi Device whatsapp bot created](https://github.com/whiteshadowofficial) by [Mr.White Shadow](https://github.com/whiteshadowofficial)
 
 ----
+
+Comming Soon...🤫
